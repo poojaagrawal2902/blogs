@@ -15,7 +15,7 @@ They have won 200+ awards in the real estate business. Many projects of Godrej P
 
 
 
-As the name suggests, Godrej Emerald, too, is like a rare gem in the cement-concrete jungle of Mumbai city. Godrej Emerald is an alluring destination for those who want to experience living amidst nature. It is located in Thane on Ghodbunder Road. The project is supported by world-renowned architectural and construction management consultants. The property, itself, is being developed with open spaces and greenery in mind with access to luxurious amenities such as a putting green, a zen garden, and a forest trail and boasts of panoramic views of the Yeoor Hills and Vasai Creek.
+As the name suggests,[ Godrej Emerald](https://homecapital.in/property/65/godrej-emerald-3-bhk), too, is like a rare gem in the cement-concrete jungle of Mumbai city. Godrej Emerald is an alluring destination for those who want to experience living amidst nature. It is located in Thane on Ghodbunder Road. The project is supported by world-renowned architectural and construction management consultants. The property, itself, is being developed with open spaces and greenery in mind with access to luxurious amenities such as a putting green, a zen garden, and a forest trail and boasts of panoramic views of the Yeoor Hills and Vasai Creek.
 
 
 
@@ -35,6 +35,6 @@ Power backup facility
 Landscaped gardens
 Rainwater harvesting
 
-One of the best features of the Godrej Emerald project is the home down payment assistance available on the purchase of its 1.5 BHK and 3 BHK apartments. In case you like any of the two apartment configurations and want to purchase it, then you can get about half of the total down payment required as a zero cost EMI loan through this home down payment assistance program.
+One of the best features of the Godrej Emerald project is the home down payment assistance available on the purchase of its 1.5 BHK and 3 BHK apartments. In case you like any of the two apartment configurations and want to purchase it, then you can get about half of the total down payment required as a zero cost EMI loan through this [home down payment assistance program](https://homecapital.in/program).
 
 Nature is impersonal, awe-inspiring, elegant, eternal. It's tiny and gigantic. You can travel far to be in a beautiful natural setting, or you can observe it in your backyard. Taking care of each aspect for innovating & living life with such amenities, Godrej Properties have truly made “Godrej Emerald” a Gem in the Godrej Properties Crown.
