@@ -3,7 +3,7 @@ title: HomeBuyers Shifting Gaze to Tier 2 & 3 Cities
 date: 2020-01-01 11:00:00 +05:30
 ---
 
-In India, buying a home is seen as an important aspect of life tied with a huge sense of achievement. It was in the 90s’ when people use to buy their own house with all their savings close to their retirement rather than taking a home loan. It was also due to the fact that banks were disinclined towards lending such a huge amount of money, which is now completely changed.
+![close-up-hand-holding-keys-wooden-house-model-against-blue-background_23-2148038680.jpg](/uploads/close-up-hand-holding-keys-wooden-house-model-against-blue-background_23-2148038680.jpg)In India, buying a home is seen as an important aspect of life tied with a huge sense of achievement. It was in the 90s’ when people use to buy their own house with all their savings close to their retirement rather than taking a home loan. It was also due to the fact that banks were disinclined towards lending such a huge amount of money, which is now completely changed.
 
 Since the 2000s, the home loans became imminent and the target population was the young buyers specifically aged between 30-45. It was now possible to buy a home even with little savings. This is not the case nowadays. As finance is now simplified, the next challenge in front of the buyers is to find a house at the desired location. 
 
